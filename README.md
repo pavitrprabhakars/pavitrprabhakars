@@ -7,3 +7,6 @@
 <p align="center">I have no boundaries as to what you can do to my pony ingame. I do not mind if you cuddle with me or boop me or hide me or touch me or anything. truly it's encouraged.</p>
 <p align="center">Copy me if you please, but the guilt of your deception will stay with you.</p>
 <h1 align="center">୧‿̩͙ ˖︵ ꕀㅤㅤㅤㅤㅤꕀ ︵˖ ‿̩͙୨</h1>
+ㅤ
+the art at the top isby @cupidliquor on twitter
+ㅤ
