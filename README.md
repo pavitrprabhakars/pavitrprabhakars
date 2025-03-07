@@ -8,5 +8,5 @@
 <p align="center">Copy me if you please, but the guilt of your deception will stay with you.</p>
 <h1 align="center">୧‿̩͙ ˖︵ ꕀㅤㅤㅤㅤㅤꕀ ︵˖ ‿̩͙୨</h1>
 ㅤ
-the art at the top isby @cupidliquor on twitter
+<p align="center">the art at the top isby @cupidliquor on twitter</p>
 ㅤ
