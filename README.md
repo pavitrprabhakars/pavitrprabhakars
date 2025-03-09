@@ -7,6 +7,10 @@
 <p align="center">I have no boundaries as to what you can do to my pony ingame. I do not mind if you cuddle with me or boop me or hide me or touch me or anything. interact with me!!! roleplay is usually okay!</p>
 <p align="center">Hazbin Hotel ponies & proshippers dni please. Valentino ponies will be hard blocked on sight.</p>
 <p align="center">Copy me if you please, but the guilt of your deception will stay with you.</p>
+ㅤ
+<p align="center">I love across the spiderverse & my hero academia!</p>
+<p align="center">my favorite music artists are Conan Gray, Lyn Lapid, and Sabrina Carpenter!</p>
+ㅤ
 <h1 align="center">୧‿̩͙ ˖︵ ꕀㅤㅤㅤㅤㅤꕀ ︵˖ ‿̩͙୨</h1>
 ㅤ
 <p align="center">the art at the top isby @cupidliquor on twitter</p>
